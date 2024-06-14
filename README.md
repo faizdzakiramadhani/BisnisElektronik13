@@ -5,4 +5,4 @@ faiz dzaki ramadhani
 
 TI.A2.22
 
-Tugas Promosi :
+Tugas Promosi : https://youtu.be/GGFlgPwiJp0?si=WXw8_gig7SJiVTgY
